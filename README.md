@@ -8,8 +8,13 @@ RxDigi is a premier digital marketing agency dedicated exclusively to the health
 Team member: 
 
 Kholoud Khaled
+
 Erin Maher
+
 Vivian Attia 
+
 Mariam Haleem
+
 Dalia Gamal
+
 Mariam Nabil
